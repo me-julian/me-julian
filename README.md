@@ -1,6 +1,6 @@
 ### Hi!
 
-I like coding, reading books and learning how to collaborate with others effectively.
+I help businesses discover new value through technology. I like coding, reading books and collaborating with others effectively.
 
 Check out [my website](https://mejulian.dev) to learn a bit more about me and my projects.
 
